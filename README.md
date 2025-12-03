@@ -1,1 +1,0 @@
-# 100-days-coding-challenge-day40-100
